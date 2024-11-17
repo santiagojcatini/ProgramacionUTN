@@ -2,7 +2,7 @@ Integrantes del grupo
 
 Araujo Martin
 
-Catini Santiaga 
+Catini Santiago
 
 Hintze Pacheco Matías Ariel
 
